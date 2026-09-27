@@ -7,9 +7,8 @@ I craft high-impact video edits and visual content designed to engage audiences.
 
 Skills: Premiere Pro, After Effects, Motion Graphics
 
-My Edits:  My edit (1)
-[![Cafe edit 1](https://img.youtube.com/vi/s_tw8w6Bvkw/hqdefault.jpg)]([https://youtube.com/shorts/s_tw8w6Bvkw](https://youtube.com/shorts/s_tw8w6Bvkw))
-Project 2 Title 
+Access my edits through google drive in attached link 
+[View Edits](https://drive.google.com/drive/folders/1ythxPyI9LfxD4MyesL9WvTrfEMirMIg4?usp=drive_link)
 Reach me with,
 Contact: +971 54 274 0483
 Email: vbegampure@gmail.com
