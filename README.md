@@ -2,7 +2,7 @@
 
 **Video Editor & Digital Marketing Student at Middlesex University Dubai**
 
-I craft high-impact video edits and visual content designed to engage audiences—always experimenting with motion, sound, and style.
+I craft high impact video edits and visual content designed to engage audiences always experimenting with motion, sound, and style.
 
 ---
 
