@@ -15,7 +15,7 @@ I craft high impact video edits and visual content designed to engage audiences 
 ---
 
 ### 📁 Portfolio
-[View Edits](YOUR_GOOGLE_DRIVE_LINK_HERE)
+[View Edits](https://drive.google.com/drive/folders/1ythxPyI9LfxD4MyesL9WvTrfEMirMIg4?usp=drive_link))
 
 ---
 
