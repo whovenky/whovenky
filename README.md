@@ -1,5 +1,13 @@
-## Hi there 👋
 
+# Hi, I'm Venkatesh 👋 I'm a Video Editor & Digital Marketing student. 
+I craft high-impact video content that drives results. 
+
+Skills: Premiere Pro, After Effects, Motion Graphics
+
+My Edits:  Project 1 Title  Project 2 Title 
+Reach me with,
+Contact: +971 54 274 0483
+Email: vbegampure@gmail.com
 <!--
 **whovenky/whovenky** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
