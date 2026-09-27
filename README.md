@@ -1,3 +1,4 @@
+![Banner](ezgif-6f49015cc8819ac2.gif)
 # 👋 Hi, I'm Venkatesh
 
 **Video Editor & Digital Marketing Student at Middlesex University Dubai**
