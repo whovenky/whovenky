@@ -8,8 +8,7 @@ I craft high-impact video edits and visual content designed to engage audiences.
 Skills: Premiere Pro, After Effects, Motion Graphics
 
 My Edits:  My edit (1)
-Video Edit 1](https://youtube.com/shorts/s_tw8w6Bvkw?si=D6Vzky4TLNMCNzRH)
-
+[![Cafe edit 1](https://img.youtube.com/vi/s_tw8w6Bvkw/hqdefault.jpg)]([https://youtube.com/shorts/s_tw8w6Bvkw](https://youtube.com/shorts/s_tw8w6Bvkw))
 Project 2 Title 
 Reach me with,
 Contact: +971 54 274 0483
