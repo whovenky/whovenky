@@ -1,10 +1,16 @@
 
-# Hi, I'm Venkatesh 👋 I'm a Video Editor & Digital Marketing student. 
-I craft high-impact video content that drives results. 
+# Hi, I'm Venkatesh 👋 
+
+Video Editor & Digital Marketing Student at Middlesex University Dubai
+
+I craft high-impact video edits and visual content designed to engage audiences. Always experimenting with motion, sound, and style. 
 
 Skills: Premiere Pro, After Effects, Motion Graphics
 
-My Edits:  Project 1 Title  Project 2 Title 
+My Edits:  My edit (1)
+[![Cafe Edit 1](https://img.youtube.com/vi/s_tw8w6Bvkw/hqdefault.jpg)]([https://youtube.com/shorts/s_tw8w6Bvkw](https://youtube.com/shorts/s_tw8w6Bvkw))
+
+Project 2 Title 
 Reach me with,
 Contact: +971 54 274 0483
 Email: vbegampure@gmail.com
